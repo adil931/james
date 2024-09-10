@@ -17,3 +17,5 @@ Aktimur Bey represents the typical warrior of the early Ottoman era, a figure wh
 In a wider view, characters like Aktimur Bey in "Kuruluş: Osman" help to boost national pride and cultural identity, especially in Turkey. The show heavily uses themes from Ottoman history, blending real events with fiction to create a story that strongly appeals to today's viewers. The way these characters are shown reflects how much the Turkish people respect their history and the accomplishments of their ancestors.
 
 In the end, even though Aktimur Bey might not be a well-known figure in Ottoman history, his character in popular culture honors the many unknown heroes of that time. Through his role in "Kuruluş: Osman", he h
+
+read more...https://www.tshistorical.com/aktimur-bey/
